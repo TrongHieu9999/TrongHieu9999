@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @TrongHieu9999
-- 👀 I’m interested in cryto, love and family
+- 👀 I’m interested in crypto, love and family
 - 🌱 I’m currently learning scyto
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me twitter @HieuAnh8899
